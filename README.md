@@ -1,5 +1,8 @@
 # 💫 About Me:
-I AM student
+I am currently-Student
+Reach me through-https://www.linkedin.com/in/guruprasaddv
+All my projects available in-https://github.com/Guruprasad-dv
+
 
 
 ## 🌐 Socials:
